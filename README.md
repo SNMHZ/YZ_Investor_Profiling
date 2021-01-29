@@ -2,3 +2,5 @@
 NH투자증권 Y&amp;Z세대 투자자 프로파일링
 
 https://www.dacon.io/competitions/official/235663/codeshare/2271
+
+https://www.miricanvas.com/v/18is9d
